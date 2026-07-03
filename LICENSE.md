@@ -1,4 +1,4 @@
-#  
+#  re:rangers x Script smart is the best re:rangers x Script, featuring private server access and silent aim. Safe and powerful for all your needs.
 
 
 
